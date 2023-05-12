@@ -20,4 +20,4 @@ Lab 5
 
 Lab 5 was my third favorite because it gave me sorta of know about how black jack actually works. The reason why is that my siblings are big fans of playing cards and black jack was one of the main catagories of card game's that they enjoyed playing together, but I was never intrested on playing card games. I mostly found them boring, but now that I have a little knowledge about it. I gained intrest on it and decided to learn more about the game.
 
- 
+ i love computer science.
